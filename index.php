@@ -1,1 +1,1 @@
-salat jomo3A lyouma
+yala nssaliw
